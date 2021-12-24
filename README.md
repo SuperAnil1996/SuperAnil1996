@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SuperAnil1996
-- 👀 I’m interested in ...  lide do something... just like we can't thing right know.
+- 👀 I’m interested in ...  like do something... just like we can't thing right know.
 - 🌱 I’m currently learning ... and learning every second.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... just ping and drop you message.
